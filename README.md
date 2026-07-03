@@ -20,8 +20,6 @@ I am actively seeking **Software Developer, Python Developer, Full Stack Develop
 
 **Bachelor of Science (Mathematics)**
 
-**Diploma in Optometry**
-
 ---
 
 ## 🚀 Professional Highlights
